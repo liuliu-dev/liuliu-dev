@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-![octocat](https://github.com/user-attachments/assets/10fd2e14-ab06-4ad2-987f-63fbac9ecd98)
+![octocat](https://github.com/user-attachments/assets/d5cacd26-8771-493f-8204-73c96fab1011)
